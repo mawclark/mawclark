@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mason Clark
+- 👀 I’m interested in 
+- 🌱 I’m currently learning Computer Science at the Michigan Technological University
+- 📫 How to reach me clarkmason42@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have double jointed shoulders and a lot of people dislike them. 
